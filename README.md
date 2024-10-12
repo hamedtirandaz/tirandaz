@@ -1,2 +1,2 @@
-# majid-mazouchi.github.io
+# Hamed-Tirandaz.github.io
 Personal Portfolio
